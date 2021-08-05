@@ -1,5 +1,5 @@
 # 👋 Hi, I’m @GiveUaPSP3000
-# 👀 A student of National University of Singapore
+# 👀 A student of National University of Singapore. The main learning direction is artificial intelligence.
 # 💞️ All my uploads are out of my own interest. Due to limited knowledge, there may be many mistakes
 # 📫 If you have any suggestions or questions, please feel free to contact me. Email: zty.workzone@gmail.com
 
